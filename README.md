@@ -85,11 +85,6 @@ I’ve received positive feedback from my previous organization. Got a Testimoni
 
 ![Get In Touch](s8.png)
 
-## Quick Links
-
-- [Projects](#)
-- [Email Address](#)
-- [Sign Up](#)
 
 **Address:** Navi Mumbai  
 **Email:** directtoanjali@gmail.com  
